@@ -10,3 +10,8 @@ Sein Finanzier ist nicht richtig begeister, aber Harold möchten den Maharadscha
     * möchte sich eigentlich noch mehr kümmern, was aber nicht zu seiner Rolle als Geschäftsmann passt
 * würde fast alles geben, um den Laden am Laufen zu halten
 * sieht gerne über Unzulänglichkeiten hinweg, wenn das Menschliche stimmt
+
+Wie Harold zu sagen pflegt (jaja, ist nicht von ihm):
+
+> The greatest thing you'll ever learn
+> id just to love and be loved in return.
