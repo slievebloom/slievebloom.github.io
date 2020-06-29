@@ -14,4 +14,7 @@ Sein Finanzier ist nicht richtig begeister, aber Harold möchten den Maharadscha
 Wie Harold zu sagen pflegt (jaja, ist nicht von ihm):
 
 > The greatest thing you'll ever learn
-> id just to love and be loved in return.
+> is just to love and be loved in return.
+
+Harold Zidler Darsteller:
+<img src="https://en.wikipedia.org/wiki/Jim_Broadbent#/media/File:Jim_Broadbent_2012.jpg" />
