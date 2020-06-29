@@ -17,4 +17,5 @@ Wie Harold zu sagen pflegt (jaja, ist nicht von ihm):
 > is just to love and be loved in return.
 
 Harold Zidler Darsteller:
-<img src="https://en.wikipedia.org/wiki/Jim_Broadbent#/media/File:Jim_Broadbent_2012.jpg" />
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Jim_Broadbent_2012.jpg/1024px-Jim_Broadbent_2012.jpg" />
